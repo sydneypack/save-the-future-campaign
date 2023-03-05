@@ -22,11 +22,16 @@ Here are 10 negative effects of the improper removal and disposal of waste.
  
 1. Soil contamination
 Soil contamination is the No. 1 problem caused by improper waste removal and disposal. Some wastes that end up in landfills excrete hazardous chemicals that leak into the soil. Take the case of plastic bottles. When they eventually break down, they release DEHA, a carcinogen that affects our reproduction systems, causes liver dysfunction, and weight loss. Soil contamination does not only affect plant growth, it is also unhealthy to humans and animals feeding on those plants.
+
+![image](https://user-images.githubusercontent.com/96417805/222976366-89cee5cc-4ba5-4e49-8a3f-d04a5a7cd1fe.png)
+
 It is therefore important that every household takes recycling to heart. Plastics, metals, paper, and electronic wastes can be recycled at your local recycling centres. If everyone takes time to segregate and sort their recyclable wastes and bring them to recycling centres, the bulk of waste that will be removed from the landfills.
 2. Air contamination
 Waste that contains hazardous chemicals, such as bleach and acids, needs to be disposed of properly, and only in approved containers with correct labels.
 Some papers and plastics are burned in landfills, emitting gas and chemicals that hurt the ozone layer. Waste that releases dioxins are also dangerous and pose a health risk when they diffuse into the air that we breathe. Add to that the methane gases that decomposing wastes release.
 Finally, landfill gas produced by the decomposing wastes, can be explosive and can harm nearby communities
+
+
  
 3. Water contamination
 Hazardous wastes in the environment leech into the ground, and ultimately, into ground water. This water is used for many things, from watering the local fields to drinking. Toxic liquid chemicals from waste can also seep into water streams and bodies of water.
