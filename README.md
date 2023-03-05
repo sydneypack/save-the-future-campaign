@@ -31,16 +31,22 @@ Waste that contains hazardous chemicals, such as bleach and acids, needs to be d
 Some papers and plastics are burned in landfills, emitting gas and chemicals that hurt the ozone layer. Waste that releases dioxins are also dangerous and pose a health risk when they diffuse into the air that we breathe. Add to that the methane gases that decomposing wastes release.
 Finally, landfill gas produced by the decomposing wastes, can be explosive and can harm nearby communities
 
+![image](https://user-images.githubusercontent.com/96417805/222976633-5e15a7c9-2ee8-49ea-a799-a2912e0cb7d3.png)
 
  
 3. Water contamination
 Hazardous wastes in the environment leech into the ground, and ultimately, into ground water. This water is used for many things, from watering the local fields to drinking. Toxic liquid chemicals from waste can also seep into water streams and bodies of water.
+
+
 Untreated sewage can threaten marine life that comes into contact with the contaminated water. It can destroy and suffocate marine habitats, such as corals. Contaminated water is also dangerous and harmful to humans who consume fish and other marine life.
+
 4. Bad impact on human health
 Improper disposal of waste can greatly affect the health of the population living nearby the polluted area or landfills. Waste disposal workers and other employees in these landfill facilities are at a greater risk. Exposure to improperly handled wastes can cause skin irritations, blood infections, respiratory problems, growth problems, and even reproductive issues.
  
 5. Impact on animals and marine life
 It cannot be stressed enough: our carelessness with our waste and garbage does not just affect us. Animals likewise suffer the effects of pollution caused by improperly disposed wastes and rubbish. Styrofoam and cigarette butts have been known to cause deaths in marine animals who consume them. Animals who consume grasses near contaminated areas or landfills are also at risk of poisoning due to the toxins that seep into the soil.
+![image](https://user-images.githubusercontent.com/96417805/222976767-ebf1601f-989b-4547-91d4-cda62f149304.png)
+
 6. Disease-carrying pests
 Mosquitoes and rats are known to live and breed in sewage areas, and both are known to carry life-threatening diseases. Mosquitoes breed in cans and tires that collect water, and can carry diseases such as malaria and dengue. Rats find food and shelter in landfills and sewage, and they can carry diseases such as leptospirosis and salmonellosis. Moreover, moisture production from waste is a breeding ground for mould. It’s bacteria that has the ability to spread and grow given the appropriate conditions, such as moisture production from appliances and food scraps.
 7. Adversely affect the local economy
@@ -52,3 +58,5 @@ There is revenue in recycling. Cities that do not implement proper removal and r
 Decomposing waste emits gases that rise to the atmosphere and trap heat. Greenhouse gases are one of the major culprits behind the extreme weather changes that the world is experiencing. From extremely strong storms and typhoons to smouldering heat, people are experiencing and suffering the negative effects of greenhouse gases.
 10. It is slowly killing the planet
 We only have one planet, and our careless handling of waste is harming it. Taking care of the environment is everyone’s responsibility, for ourselves, for our planet, and for our children.
+![image](https://user-images.githubusercontent.com/96417805/222976854-b1736d27-a3bf-4d58-84d8-2c5773179402.png)
+
