@@ -8,7 +8,7 @@ I stand by the names of **Wakabi Sydney**, member of Save The Future Campaign an
 environmental movement and below I unveil.
 
 **MUWANGUZI BENARD NAMBASA DORCUS BELINDA KASUJJA ETHAN MWESIGWA JEREMY ETYANG DAVID MWESEKEZI 
-SOLOMON KUTEESA JOSHUA KATEETE JOSHUA NAMUGWE MADRINE LUBULWA JOHN TERRY NSIBIRANO HILLARY**
+SOLOMON KUTEESA JOSHUA KATEETE JOSHUA NAMUGWE MADRINE LUBULWA JOHN TERRY KIBUUKA MUHAMMAD NSIBIRANO HILLARY**
 
 With great desire and hope to live in a pollution and disease free world, we, humans are coming up with different ways of conserving the environment order to make it a better place. Implementing various ways of fighting water, land and air pollution, humanity comes up with advanced methods of taking action to reduce these kinds of pollution. Pollution does not only affect the environment we live in but also affects our health and lifestyles
 
