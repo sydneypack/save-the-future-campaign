@@ -60,4 +60,38 @@ Decomposing waste emits gases that rise to the atmosphere and trap heat. Greenho
 10. It is slowly killing the planet
 We only have one planet, and our careless handling of waste is harming it. Taking care of the environment is everyone’s responsibility, for ourselves, for our planet, and for our children.
 ![image](https://user-images.githubusercontent.com/96417805/222976854-b1736d27-a3bf-4d58-84d8-2c5773179402.png)
+**TOGETHER WE CAN FIGHT THE PROBLEM OF ENVIRONMENTAL POLLUTION THROUGH THE FOLLOWING WAYS;**
 
+Turn off the lights when not in use
+
+The energy that the lights take also contribute to air pollution, thus less consumption of electricity can save energy. Use energy saving fluorescent lights to help the environment.
+
+reduce air pollution
+3. Recycle and Reuse
+
+The concept of recycle and reuse is not just conserve resources and use them judicially but also is helpful for air pollution as it helps in reducing pollution emissions. The recycled products also take less power to make other products.
+
+prana air quality monitor
+4. No to plastic bags
+
+The use of plastic products could be very harmful to the environment as they take a very long time to decompose, due to their material made up of oil. The use of paper bags instead is a better alternative as they decompose easily and are recyclable.
+5. Reduction of forest fires and smoking
+
+The collecting of garbage and getting it on fire in dry seasons or dry leaves catching fires is a huge factor for causing air pollution, moreover smoking also causes air pollution and causes the air quality to worsen along with obviously damaging one’s health.
+6. Use of fans instead of Air Conditioner
+
+The usage of AC’s takes a lot of energy and emits a lot of heat which is bad for the environment. AC’s also take a lot of power and energy to work as compared to fans.
+7. Use filters for chimneys
+
+The gas that is emitted from fireplaces in homes and factories are extremely dangerous for air pollution and harms the air quality severely. The use of filters should be used at least if the consumption couldn’t be lessened, this will help to reduce the effect of harmful gases absorbing in the air.
+8. Avoid usage of crackers
+
+The use of crackers during festivals and weddings is sadly one of the biggest contributors to air pollution, leading to a layer of smog which is extremely harmful for health. So, practice of no crackers should be implemented.
+
+2nd gen n95 pollution mask
+9. Avoid using of products with chemicals
+
+Products that use the chemicals in their usage or smell strongly, like paints or perfumes should be used less or outside the house. There can also be an alternative to use products with low chemical content and organic properties.
+10. Implement Afforestation
+
+Last but not the least, plant and grow as many trees as possible. The practice of planting trees provides a lot of benefits to the environment and helps with the release of oxygen.
