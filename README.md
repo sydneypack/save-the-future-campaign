@@ -5,7 +5,7 @@ A world of change, a world without pollution, a world free from respiratory and 
 
 **INTRODUCTION**
 
-I stand by the names of **Wakabi Sydney**, member of Save The Future Campaign and am glad to introduce my group members with whom i worked during this 
+I am **Wakabi Sydney**, member of Save The Future Campaign and am glad to introduce my group members with whom i worked during this 
 environmental movement and below I unveil.
 
 **MUWANGUZI BENARD NAMBASA DORCUS BELINDA KASUJJA ETHAN MWESIGWA JEREMY ETYANG DAVID MWESEKEZI 
