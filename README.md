@@ -80,9 +80,15 @@ prana air quality monitor
 
 4. **No to plastic bags**
 
+![image](https://user-images.githubusercontent.com/96417805/228317685-ff6a8f6a-5239-42b9-928a-9d6b81bfe3d4.png)
+
+
 The use of plastic products could be very harmful to the environment as they take a very long time to decompose, due to their material made up of oil. The use of paper bags instead is a better alternative as they decompose easily and are recyclable.
 
 5. **Reduction of forest fires and smoking**
+
+![image](https://user-images.githubusercontent.com/96417805/228318055-3d05aea6-37ab-4468-8ff1-769b1d78263a.png)
+
 
 The collecting of garbage and getting it on fire in dry seasons or dry leaves catching fires is a huge factor for causing air pollution, moreover smoking also causes air pollution and causes the air quality to worsen along with obviously damaging one’s health.
 
@@ -105,5 +111,8 @@ The use of crackers during festivals and weddings is sadly one of the biggest co
 Products that use the chemicals in their usage or smell strongly, like paints or perfumes should be used less or outside the house. There can also be an alternative to use products with low chemical content and organic properties.
 
 10. **Implement Afforestation**
+11. 
+![image](https://user-images.githubusercontent.com/96417805/228317103-05355935-cab5-4dae-bcfe-68a727ce0582.png)
+
 
 Last but not the least, plant and grow as many trees as possible. The practice of planting trees provides a lot of benefits to the environment and helps with the release of oxygen.
